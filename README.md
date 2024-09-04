@@ -13,13 +13,18 @@
 
 - 💬 Ask me about **Web development, Machine Learning**
 
-- 📫 How to reach me **waleedahmad8750@gmail.com**
+- 📫 How to reach me **waleedahmad1806@gmail.com**
 
 - 📄 Know about my experiences [www.drive.com](www.drive.com)
 
-- ⚡ Fun fact **I think I am**
+-  Know about my experiences [www.drive.com](www.drive.com)
+-  Connect with Me [![LinkedIn Logo](https://upload.wikimedia.org/wikipedia/commons/0/01/LinkedIn_Logo_2013.svg)](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
 
-<h3 align="left">Connect with me:</h3>
+
+
+
+
+<h3 align="left">Connect with me on Whatsapp : +923062070896</h3>
 <p align="left">
 </p>
 
