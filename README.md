@@ -15,15 +15,10 @@
 
 - 📫 How to reach me **waleedahmad1806@gmail.com**
 
-- 📄 Know about my experiences [www.drive.com](www.drive.com)
 
--  Know about my experiences [www.drive.com](www.drive.com)
 
 
 - Connect with me on LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
-
-
-
 
 
 <h3 align="left">Connect with me on Whatsapp : +923062070896</h3>
