@@ -18,7 +18,9 @@
 - 📄 Know about my experiences [www.drive.com](www.drive.com)
 
 -  Know about my experiences [www.drive.com](www.drive.com)
--  Connect with Me [![LinkedIn Logo](https://upload.wikimedia.org/wikipedia/commons/0/01/LinkedIn_Logo_2013.svg)](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
+
+
+- Connect with me on LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
 
 
 
