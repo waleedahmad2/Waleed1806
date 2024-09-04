@@ -18,7 +18,7 @@
 
 
 
-- Connect with me on LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
+- Connect with me on LinkedIn: [@waleedahmad](https://www.linkedin.com/in/waleed-ahmad-77758b1b7/)
 
 
 <h3 align="left">Connect with me on Whatsapp : +923062070896</h3>
